@@ -1,0 +1,2 @@
+# JerzzyDoS
+gunakan dengan bijak
